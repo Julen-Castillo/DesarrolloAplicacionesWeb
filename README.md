@@ -1,2 +1,5 @@
 # DesarrolloAplicacionesWeb
-Repositorio global modulo
+
+Buena noxe guapo
+Rep-Global
+Eskere
